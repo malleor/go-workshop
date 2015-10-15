@@ -1,0 +1,1 @@
+Go workshop with @ilonajulczuk
